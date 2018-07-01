@@ -24,7 +24,7 @@ Looking for happiness in the wrong place can cause suffering. Often, looking for
 #### Main Question to Contemplate
 > How much of our life is focused on pleasure versus meaningful things that we feel good about.
 
-<u>**Intention**</u> makes a world of difference. Exampe: buying something to support someone or make a difference versus just impulse buying.
+<u>**Intention**</u> makes a world of difference. Example: buying something to support someone or make a difference versus just impulse buying.
 
 Everyday we're bombarded with messages that we're *not enough* but we could be if we just bought *x* product.
 
@@ -161,7 +161,7 @@ When things go South, humans like to blame someone else. Because if you blame so
 **God + Son** = The energy of the divine
 **Holy Spirit** = The manifestation of that love in each of use
 
-<u>Service is love</u>. Feeling nourished = collective energy of mindfulness = holy spirit = Buddhanature. 
+<u>Service is love</u>. Feeling nourished = collective energy of mindfulness = holy spirit = Buddhanature.
 
 #### Realizations
 
